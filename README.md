@@ -1,4 +1,4 @@
-# 💫 Hey Hey!! Thanooj Khan Here
+# 💫 Hey Hey!! Hajarathu Shamna Here
  👩🎥 Multimedia graduate | 👨‍💻 Web Developer<br>🔥 Enjoy creating engaging user interfaces and embracing new challenges in technology <br>💻 MERN Stack Developer
 
 
