@@ -1,4 +1,4 @@
-# 💫 Hey Hey!! Hajarathu Shamna Here
+# 💫 Hajarathu Shamna 
  👩🎥 Multimedia graduate | 👨‍💻 Web Developer<br>🔥 Committed to
 continuous learning and professional growth and embracing new challenges in technology <br>💻 MERN Stack Developer
 
